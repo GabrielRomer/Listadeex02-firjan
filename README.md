@@ -1,1 +1,0 @@
-# Listadeex02-firjan
